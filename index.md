@@ -1,4 +1,8 @@
-# Welcome to my "Digital Garden"
+
+
+
+  
+# Welcome to my "[Digital Garden](https://maggieappleton.com/garden-history)"
 
 Hej and welcome to my digital garden. Hier I will sporadically post new stuff relating to... well, anything.
 This site is used as a personal site to gather lose text and ideas in one place.
